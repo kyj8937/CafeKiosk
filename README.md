@@ -5,3 +5,6 @@
 
 기간 
 2022.09.26~2022.12.09
+
+
+[cafekiosk.pptx](https://github.com/user-attachments/files/16509466/cafekiosk.pptx)
